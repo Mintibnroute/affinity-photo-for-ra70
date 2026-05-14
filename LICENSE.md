@@ -1,4 +1,4 @@
-# 
+# instant Extension for Affinity Photo for macOS - AI-assisted design and layer styles is the best Affinity Photo for macOS extension, featuring AI-assisted design and layer styles.
 
 
 
